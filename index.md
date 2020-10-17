@@ -1,15 +1,11 @@
-Hi guys!!
+Olá pessoal!
+Eu tenho uma gatinha muito fofa que se chama Papoila (vou pôr fotos dela aqui) e é muito engraçada. Ela é a minha melhor amiga no Mundo dos Animais!
 
-I'm portuguese and I love animals.
+Ainda ando na escola e tenho vários amigos eles são muitos fixes e engraçados! A minha disciplina favorita é fisica-quimica.
 
-I study, and my favorite discipline is chemical physics. How about you?
+Adoro ciência, por isso quando crescer vou ser cientista!
 
-I love chemical and I want to be scientist. I love sciense! And you? What profession do you want to have??
-
-I love my school and my friends (they are very funny) and and we dams out laughing together! 
-
-I have a cat (Papoila) and I will put pictures of her here. She is my best friend (on the theme of animals)!
+Eu tenho um tio Super Fixe que me ensinou a fazer isto tudo!!!!!!!!!!!!!!!!!!
 
 
-Well I'm done for today. Bye guys,see tomorrow!
 
